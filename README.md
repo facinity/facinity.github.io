@@ -1,2 +1,0 @@
-# josuhe.github.io
-yuh
